@@ -1,1 +1,5 @@
-- 2 avocados
+* 2 tsp cilantro
+* 2 avocados
+* 1 lime
+* 1 tsp salt
+* 1/2 onion
